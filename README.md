@@ -1,2 +1,2 @@
-# KDH_Diary.github.io
+# kimkorea98.github.io
 footprint of mine
